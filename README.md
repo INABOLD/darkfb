@@ -1,2 +1,0 @@
-# darkfb
-jalani dengan enjoy
